@@ -7,6 +7,7 @@
 * Dormir
 * Comer
 * Videojuegos
+* Dormir x2
 
 ## Cita favorita
 
