@@ -7,7 +7,7 @@
 * Dormir
 * Comer
 * Videojuegos
-* Dormir x2
+* Dormir x2a
 
 ## Cita favorita
 
