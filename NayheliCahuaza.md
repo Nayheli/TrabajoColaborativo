@@ -1,4 +1,4 @@
-# Nayheli Cahuaza Huaman
+# Nayheli Cahuaza 
 
 ![Foto de Nayheli](https://plantillasdememes.com/img/plantillas/yo-habia-ponido-mis-cosas-aqui01561772726.png "Foto de Nayheli")
 
