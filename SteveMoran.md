@@ -1,6 +1,6 @@
 # Steve Moran
 
-![Foto de Steve](https://www.google.com/url?sa=i&source=images&cd=&ved=2ahUKEwiq-7nd8K_lAhWpxFkKHQ-7BXEQjRx6BAgBEAQ&url=https%3A%2F%2Fwww.filo.news%2Fgaming%2F35-anos-de-Tetris-el-juego-mas-popular-de-todos-los-tiempos-20190606-0021.html&psig=AOvVaw2L2oO7HraEJd9LRZlMXSC-&ust=1571834166288963 "Foto de Steve")
+![Foto de Steve](https://www.minecraftskins.com/uploads/preview-skins/2012/08/25/skin_2012082517594312120both.png?v100"Foto de Steve")
 
 ## Hobbies
 
