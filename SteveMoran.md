@@ -1,6 +1,6 @@
 # Steve Moran Jaico
 
-![Foto de Steve](https://www.google.com/url?sa=i&source=images&cd=&ved=2ahUKEwiq-7nd8K_lAhWpxFkKHQ-7BXEQjRx6BAgBEAQ&url=https%3A%2F%2Fwww.filo.news%2Fgaming%2F35-anos-de-Tetris-el-juego-mas-popular-de-todos-los-tiempos-20190606-0021.html&psig=AOvVaw2L2oO7HraEJd9LRZlMXSC-&ust=1571834166288963 "Foto de Steve")
+![Foto de Steve](https://www.google.com/url?sa=i&source=images&cd=&ved=2ahUKEwjQ3f6W-6_lAhVxoFkKHeRXCmkQjRx6BAgBEAQ&url=https%3A%2F%2Ftetris.com%2Farticle%2F107%2Fthe-life-lessons-of-tetris&psig=AOvVaw19-SePxgSkPuGbN14AxgsW&ust=1571836972932606 "Foto de Steve")
 
 ## Hobbies
 
