@@ -1,11 +1,12 @@
 # Diego Campana
-![Foto de Diego] (https://www.google.com/url?sa=i&source=images&cd=&cad=rja&uact=8&ved=2ahUKEwiuqLyg8K_lAhVS2FkKHY5LDtkQjRx6BAgBEAQ&url=https%3A%2F%2Fwww.facebook.com%2Fpages%2Fcategory%2FPersonal-Blog%2FGatos-llorando-v-2268259049908153%2F&psig=AOvVaw2Hf9HghCD6MubCcfOq8rk8&ust=1571834027975560 "Foto de Campanita")
+![Foto de Diego] (https://http2.mlstatic.com/cartel-propiedad-protegida-con-alarma-14x30-alto-impacto-D_NQ_NP_916890-MLA29241826935_012019-F.jpg "Foto de Campanita")
 
 ## Hobbies
 
 *Videojuegos
 *Dormir
 *Comer
+*ver hentai
 ## Cita favorita
 > Ahora dime, eres hombre o mujer? -Profesor.Oak
 
