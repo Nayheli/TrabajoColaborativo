@@ -6,6 +6,7 @@
 *Videojuegos
 *Dormir
 *Comer
+*ver hentai
 ## Cita favorita
 > Ahora dime, eres hombre o mujer? -Profesor.Oak
 
