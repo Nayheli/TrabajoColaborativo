@@ -1,5 +1,5 @@
 # Diego Campana
-![Foto] (https://http2.mlstatic.com/cartel-propiedad-protegida-con-alarma-14x30-alto-impacto-D_NQ_NP_916890-MLA29241826935_012019-F.jpg "")
+![Foto](https://http2.mlstatic.com/cartel-propiedad-protegida-con-alarma-14x30-alto-impacto-D_NQ_NP_916890-MLA29241826935_012019-F.jpg "")
 
 ## Hobbies
 
