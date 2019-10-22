@@ -1,6 +1,6 @@
 # Steve Moran
 
-![Foto de Steve](https://www.minecraftskins.com/uploads/preview-skins/2012/08/25/skin_2012082517594312120both.png?v100"Foto de Steve")
+![Foto de Steve](https://www.minecraftskins.com/uploads/preview-skins/2012/08/25/skin_2012082517594312120both.png?v100   "Foto de Steve")
 
 ## Hobbies
 
