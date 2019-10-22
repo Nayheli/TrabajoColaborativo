@@ -1,6 +1,6 @@
 # Nayheli Cahuaza
 
-![Foto de Nayheli](https://www.google.com/url?sa=i&source=images&cd=&ved=2ahUKEwjOtsiw8K_lAhVpoFkKHcopCtsQjRx6BAgBEAQ&url=https%3A%2F%2Fwww.pinclipart.com%2Fpindetail%2FimRRmw_gravity-falls-and-la-danza-mabel-image-gravity%2F&psig=AOvVaw1vEjVk3wU7rg3GY5RvKaMp&ust=1571834049958671 "Foto de Nayheli")
+![Foto de Nayheli](https://upload.wikimedia.org/wikipedia/en/4/4b/Mabel_Pines.png "Foto de Nayheli")
 
 ## Hobbies
 
