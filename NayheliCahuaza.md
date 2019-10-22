@@ -1,6 +1,6 @@
 # Nayheli Cahuaza Huaman
 
-![Foto de Nayheli](https://pbs.twimg.com/media/ED5Pjn-XsAEhQIy.jpg "Foto de Nayheli")
+![Foto de Nayheli](https://upload.wikimedia.org/wikipedia/en/4/4b/Mabel_Pines.png "Foto de Nayheli")
 
 ## Hobbies
 
