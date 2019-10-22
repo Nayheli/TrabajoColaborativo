@@ -1,13 +1,13 @@
-# Steve Moran Jaico
+# Steve Moran
 
-![Foto de Steve](https://www.google.com/url?sa=i&source=images&cd=&ved=2ahUKEwjQ3f6W-6_lAhVxoFkKHeRXCmkQjRx6BAgBEAQ&url=https%3A%2F%2Ftetris.com%2Farticle%2F107%2Fthe-life-lessons-of-tetris&psig=AOvVaw19-SePxgSkPuGbN14AxgsW&ust=1571836972932606 "Foto de Steve")
+![Foto de Steve](https://www.minecraftskins.com/uploads/preview-skins/2012/08/25/skin_2012082517594312120both.png?v100"Foto de Steve")
 
 ## Hobbies
 
 * Dormir
 * Comer
 * Videojuegos
-* Dormir x2
+* Dormir x2a
 
 ## Cita favorita
 
