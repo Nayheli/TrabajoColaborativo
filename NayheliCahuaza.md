@@ -7,6 +7,7 @@
 * Escuchar musica
 * Ver series
 * Videojuegos
+* Dormir
 
 ## Cita favorita
 
